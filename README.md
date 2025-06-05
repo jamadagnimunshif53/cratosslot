@@ -1,4 +1,4 @@
-# 🎰 Cratosslot — Kolay ve Keyifli Online Deneyim
+# 🎰 Cratosslot — Basit ve Eğlenceli Çevrimiçi Oyun Keyfi
 
 Cratosslot, basit kullanımı ve popüler oyun koleksiyonuyla her zevke hitap eden bir platformdur. Her zaman kolay erişim ve rahat bir ortam sunar.
 
